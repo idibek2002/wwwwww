@@ -1,0 +1,1 @@
+https://www.figma.com/file/sh4z1r0yfuIs3RiaUskUMX/%5BPublished%5D%5BRU%5D-%C2%ABK9N%C2%BB?node-id=38-631&t=91KlW3aoWZudWIn9-0
